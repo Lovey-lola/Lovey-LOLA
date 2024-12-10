@@ -10,7 +10,7 @@ B-DAY IS MAY 2ND. 15-16yo!!
 SHE/HER PRONOUNS 
 
 About Me:
-I'm a proud artist of 5-6 years! I started this journey mid 2019! :3 
+I'm a proud digital artist of 5-6 years! I started this journey mid 2019! :3 
 animating for of 2 years, but took a 5 mount brack >_>.
 I have a secret love for playing the piano and would love to pick it up as a hobby.
 Cat lover! but genuinely love anything that's cute and fluffy <3.
