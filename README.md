@@ -3,6 +3,8 @@
 HAII!!☆
 
 
+.
+
 IF YOUR HERE FROM PONYTOWN:
 
 PLS INT, I dont mind at all  HEHE :3
@@ -11,6 +13,8 @@ I DO C+H [HIDE + HUG] ALL THE TIME.
 
 
 
+
+.
 here's some names I go by:
 Lola/Sushi/Zoe/Lolapop
 
