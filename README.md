@@ -41,7 +41,7 @@ sʜᴇ/ʜᴇʀ ᴘʀᴏɴᴏᴜɴs
 __Here's my OC, Sushi :3  [art by me]__  
 </p>
                                                                                                                                  
-![image](https://github.com/user-attachments/assets/356abc9c-7b7c-4304-9973-0d00c2245c43) ![image](https://github.com/user-attachments/assets/297fbd55-f275-4d27-8f13-2cd54f404e65)
+![image](https://github.com/user-attachments/assets/297fbd55-f275-4d27-8f13-2cd54f404e65)
 
 
- [CHARACTER PAGE](https://characterhub.com/character/sushi)
+ [CHARACTER PAGE](https://characterhub.com/character/sushi)   (psspspsp dont be shy,i dont mind fanart (´▽`ʃ♡ƪ))
