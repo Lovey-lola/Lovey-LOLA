@@ -39,7 +39,7 @@
 ˚ʚ☆ɞ˚┈┈◦•◦꒰ __𝐴𝐵𝑂𝑈𝑇 𝑀𝐸__ ꒱•◦┈┈˚ʚ☆ɞ˚<br>
 ╭┈┈★
 ┊`NAME`: ʟᴏʟᴀ/ᴍɪʟᴋ/ᴢᴏᴇ.  °<br>
-┊`AGE`: 15- gonna be 16 [`may 2nd`]           •.<br>
+┊`AGE`: 16yo [`may 2nd`]           •.<br>
 ┊`PRONOUNS`: She/her.      .⋆<br>
 ┊`GENDER`: Female 
 ┊`SEXUALITY`: Lesb/Bi/poly. •<br>
