@@ -6,7 +6,7 @@
 
 
 <p align="center">
-  <a href="https://lolasushi.straw.page">•STRAWPAGE• <a  href="https://www.deviantart.com/lolacoolthing">•ARTPAGE•</a>
+  <a href="https://lolasushi.straw.page">•STRAWPAGE• <a 
 </p>
 
 
