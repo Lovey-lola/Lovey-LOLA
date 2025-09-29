@@ -1,7 +1,7 @@
 
 ![image](https://github.com/user-attachments/assets/bec1292e-5612-4414-b994-29faeb924da7)
 
-![image](https://github.com/user-attachments/assets/13d25c87-801a-4a60-a441-130f4d5e8637)
+![image](https://cdn.discordapp.com/attachments/942191151677583371/1422370489233444944/Untitled226_20250929194303.png?ex=68dc6d3e&is=68db1bbe&hm=c5a7d2d9e6931b2348adde3fa56ce03072d52d0300cd1e66b6d825e2f288733f&)
 
 
 
@@ -42,7 +42,7 @@
 ┊`AGE`: 16yo [`may 2nd`]           •.<br>
 ┊`PRONOUNS`: She/her.      .⋆<br>
 ┊`GENDER`: Female 
-┊`SEXUALITY`: Lesb/Bi/poly. •<br>
+┊`SEXUALITY`: Lesb/Bi. •<br>
 ┊`TIMEZONE`: Atlantic standard time<br>
 ╰┈┈★           ☾    .⋆<br>
 ˚ʚ☆ɞ˚┈┈◦•◦꒰ __𝑻𝑹𝑨𝑰𝑻𝑺__ ꒱•◦┈┈˚ʚ☆ɞ˚<br>
