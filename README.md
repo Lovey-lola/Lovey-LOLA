@@ -1,7 +1,17 @@
 
 ![image](https://github.com/user-attachments/assets/bec1292e-5612-4414-b994-29faeb924da7)
 
-![image](https://cdn.discordapp.com/attachments/942191151677583371/1422370489233444944/Untitled226_20250929194303.png?ex=68dc6d3e&is=68db1bbe&hm=c5a7d2d9e6931b2348adde3fa56ce03072d52d0300cd1e66b6d825e2f288733f&)
+
+
+![1000057446](https://github.com/user-attachments/assets/56a75571-cf4c-4850-b9dc-ac8d57d8ed76)    <img src="https://github.com/user-attachments/assets/1fd06688-6bf2-466d-9f7b-2764e2882d1b" width="445" height="250">
+
+
+
+
+
+
+<p align="center"> <code style="color : blue">"If anyone tells me it's a mistake to have hope, well then, I'll just tell them, they're wrong"</code>
+</p>
 
 
 
