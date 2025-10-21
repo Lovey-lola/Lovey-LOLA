@@ -1,17 +1,12 @@
 
 ![image](https://github.com/user-attachments/assets/bec1292e-5612-4414-b994-29faeb924da7)
 
-
-
-![1000057446](https://github.com/user-attachments/assets/56a75571-cf4c-4850-b9dc-ac8d57d8ed76)    <img src="https://github.com/user-attachments/assets/1fd06688-6bf2-466d-9f7b-2764e2882d1b" width="445" height="250">
-
-
+<p align="center">
+<img src="https://github.com/user-attachments/assets/eae6b410-560e-464d-9758-89a572a598f8" width="890" height="500">
 
 
 
 
-<p align="center"> <code style="color : blue">"If anyone tells me it's a mistake to have hope, well then, I'll just tell them, they're wrong"</code>
-</p>
 
 
 
@@ -52,7 +47,7 @@
 ┊`AGE`: 16yo [`may 2nd`]           •.<br>
 ┊`PRONOUNS`: She/her.      .⋆<br>
 ┊`GENDER`: Female 
-┊`SEXUALITY`: Lesb/Bi. •<br>
+┊`SEXUALITY`: Lesb/Bi. • <br>
 ┊`TIMEZONE`: Atlantic standard time<br>
 ╰┈┈★           ☾    .⋆<br>
 ˚ʚ☆ɞ˚┈┈◦•◦꒰ __𝑻𝑹𝑨𝑰𝑻𝑺__ ꒱•◦┈┈˚ʚ☆ɞ˚<br>
